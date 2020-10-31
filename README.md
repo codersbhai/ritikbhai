@@ -1,3 +1,3 @@
 # ritikbhai
 This is first repo
-Hello machli jal ki rani h jivan uska  pani h , haath lgaoge bahar nikaloge mar jayegi
+Hello machli jal ki rani h jivan uska  pani h , bhaiya acche se likha kro naa
